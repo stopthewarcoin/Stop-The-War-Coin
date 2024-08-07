@@ -71,3 +71,33 @@ Disclaimer
 Purchasing and selling tokens are inherently risky, and holders must bear the risk of loss. The Stop The War Coin project accepts no liability for losses or taxes incurred. The value of STW may decrease and can be volatile. This README does not constitute legal or financial advice, and users should consult local laws before transacting in any cryptocurrency.
 
 For more detailed insights and step-by-step guides, visit our website and join our community today.
+
+Peace messages examples by our holders : 
+
+I hate all wars - STW COIN project dev
+War... is as much a punishment to the punisher as to the sufferer.
+War settles nothing.
+Peace is constructed, not fought for.
+Let's make this world a better place...let's end conflict once and for all.
+I want the conflict in Ukraine to end.
+The people of Russia are not the enemy. The people of Ukraine are not the enemy. War is the enemy. #StopTheWar #NoMoreWar
+We don't want a nuclear war, do something to stop this war.
+The war will end, the leaders shake hands, and that old woman will remain waiting for her martyred son, and that girl will wait for her beloved husband, and those children will wait for their heroic father. I don't know who sold the homeland!
+Stop the war now!
+Greed must disappear as soon as possible, this is a very terrible quality that can ruin a bright future. The future belongs to good people who will live in such a beautiful world that it is difficult for us to even imagine now.
+War - What is it good for....Absolutely nothing..
+Weapons are instruments of fear; they are not a wise man's tools. He uses them only when he has no choice. Peace and quiet are dear to his heart. And victory no cause for rejoicing. If you rejoice in victory, then you delight in killing; If you delight in killing, you cannot fulfill yourself.
+STOP THE WAR
+War is bad, it steals, kills, destroys destinies. Those are generation of men wiped out, fathers, husbands, sons, grandsons, all for what??? When will it be enough??
+Memento mori
+War settles nothing.
+Only thing war is good for is taking innocent lives.
+#endwar
+"War should be treated as murder is treated. It should be regarded with equal horror and with equal aversion ... There are many ways of showing courage without having to kill other people, and it is such ways that should be encouraged." Bertrand Russell
+The real and lasting victories are those of peace and not of war. – Ralph Waldo Emerson
+THE MOST LETHAL VIRUS IS NOT COVID. IT IS WAR.
+Peace Is Always Beautiful
+Either man will abolish war or war will abolish man
+Every war is a war against children.
+God does not back war
+Any peace is better than any war
